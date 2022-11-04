@@ -1,2 +1,2 @@
 # tembeling
-Sustainable Wellness in Tembeling
+Sustainable Wellness Initiative in Tembeling (SWIT)
